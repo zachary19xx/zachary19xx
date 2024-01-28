@@ -28,4 +28,21 @@ lspdpcpspwpqqslxpxcpxhttps://docs.google.com/forms/d/e/1FAIpQLSd1CmMqsWiJsMz5PpF
 git branch -M main
 git push -u origin mainhttps://lens.snapchat.com/c1fae4b0980446ba98efcf47f789ca88?share_id=f4-T9UKuSgM&locale=en-UShttps://subscribe.wordpress.com/?key=48d094408575960afad07f1ba683aa34&email=zachary19xx%40icloud.com&option=settingshttps://lens.snapchat.com/c1fae4b0980446ba98efcf47f789ca88?share_id=f4-T9UKuSgM&locale=en-UShttps://docs.google.com/forms/d/e/1FAIpQLSd1CmMqsWiJsMz5PpFWKx_rk9RKzn_C6hWu3aPd0mm-r4pEzw/viewformgit remote add origin https://github.com/zachary19xx/Zippysixxx.git
 git branch -M main
-git push -u origin mainhttps://docs.google.com/forms/d/e/1FAIpQLSd1CmMqsWiJsMz5PpFWKx_rk9RKzn_C6hWu3aPd0mm-r4pEzw/viewformhttps://subscribe.wordpress.com/?key=48d094408575960afad07f1ba683aa34&email=zachary19xx%40icloud.com&option=setting
+git push -u origin mainhttps://docs.google.com/forms/d/e/1FAIpQLSd1CmMqsWiJsMz5PpFWKx_rk9RKzn_C6hWu3aPd0mm-r4pEzw/viewformhttps://subscribe.wordpress.com/?key=48d094408575960afad07f1ba683aa34&email=zachary19xx%40icloud.com&option=settingldmd
+
+kxlxldlsllcle
+mxmdlcofososñsszow9papqpqp1pfjvolr9vososlw
+skoxoeo2ppw0dmclflfld
+kakwkwwwwwwwjzkzoozoAbvastnetwoerk
+vastnetwork fial
+nitcoinmining
+payoutmethod??
+??
+zlpapdpepwwpwpwpelelepe
+showmehow
+please
+![1000000322](https://github.com/zachary19xx/zachary19xx/assets/157970722/7a4d5241-eb74-4336-aa5b-644d23569c1e)
+
+git remote add origin https://github.com/zachary19xx/Zippysixxx.git
+git branch -M main
+git push -u origin mainhttps://lens.snapchat.com/c1fae4b0980446ba98efcf47f789ca88?share_id=f4-T9UKuSgM&locale=en-UShttps://subscribe.wordpress.com/?key=48d094408575960afad07f1ba683aa34&email=zachary19xx%40icloud.com&option=settingshttps://docs.google.com/forms/d/e/1FAIpQLSd1CmMqsWiJsMz5PpFWKx_rk9RKzn_C6hWu3aPd0mm-r4pEzw/viewform
